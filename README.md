@@ -8,4 +8,8 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.imgur.com/ZNTymwC.png" alt=" " width="300" height="300">
 
+<p align = center>
+𝗂𝗇𝗍 𝖿𝗋𝖾𝖾𝗅𝗒,ㅤ𝗇𝗈 𝖽𝗇𝗂
+</p>
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀[𝖺𝗍𝖺𝖻𝗈𝗈𝗄](https://swag.atabook.org)
