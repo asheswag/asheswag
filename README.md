@@ -12,4 +12,4 @@
 𝗂𝗇𝗍 𝖿𝗋𝖾𝖾𝗅𝗒,ㅤ𝗇𝗈 𝖽𝗇𝗂
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀[𝖺𝗍𝖺𝖻𝗈𝗈𝗄](https://swag.atabook.org)ㅤ[𝗋𝖾𝗇𝗍𝗋𝗒](https://rentry.org/chayron)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀[𝖺𝗍𝖺𝖻𝗈𝗈𝗄](https://swag.atabook.org)ㅤ[𝗋𝖾𝗇𝗍𝗋𝗒](https://rentry.org/chayron)
